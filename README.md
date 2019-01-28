@@ -1,2 +1,2 @@
 # programming
-i have no idea what im doing
+i have no idea what im doing.
